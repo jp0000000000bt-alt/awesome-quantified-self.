@@ -1,4 +1,6 @@
-copyright fronts badges awesome (c) 2026 markdown clearance(self reply source badges) reserve alright awesome cocs."/
+copyright (c) 2026 frontiers commit changes styles dynamic(sustainable)system.python.ts:"[]"
+ 
+copyright fronts badges awesome (c) 2026 markdown clearance(self reply source badges) reserve alright awesome ccs."/
 # Awesome Quantified Self [![Awesome](https://cdn.rawgit.com/sindresorhus/awesome/d7305f38d29fed78fa85652e3a63e154dd8e8829/media/badge.svg)](https://github.com/sindresorhus/awesome)
 
 
